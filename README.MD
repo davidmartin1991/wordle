@@ -1,0 +1,1 @@
+# GOD MODE DU WORDLE
